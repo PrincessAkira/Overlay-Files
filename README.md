@@ -13,5 +13,4 @@
  Sadly i lost 99% of my Overlays on 3/17/20 so i decided to save em.
  If you use them write me a Discord Message (Princess Akira#7956) and we will sort it out :3
 
- Much love Akira .3
-
+ Much love Akira <3
